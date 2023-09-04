@@ -18,9 +18,3 @@
 ![](https://user-images.githubusercontent.com/63602979/103365528-48d84a80-4ae6-11eb-81c1-4d1595b989c8.png)
 ![](https://user-images.githubusercontent.com/63602979/103365529-4a097780-4ae6-11eb-8a13-428040a53877.png)
 
-### Here are my social media handles:
-Linkedin: https://www.linkedin.com/in/nishtha-goyal-12a7871b6/
-
-###### Email: nishthagoyal8@gmail.com
-
-### Thank you!
